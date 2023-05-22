@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **react**
 
-- ⚡ Fun fact **I ❤️cooking
+- ⚡ Fun fact is I ❤️cooking
 
 
 <p align="left">
